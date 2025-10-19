@@ -71,4 +71,5 @@ If you have any questions or requests, contact: cspars.app@gmail.com
 
 ## Contact Us
 
-If you have questions, requests, or complaints regarding privacy, contact: cspars.app@gmail.com
+If you have questions, requests, or complaints regarding privacy, contact: mohamdevx@gmail.com
+
